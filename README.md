@@ -7,5 +7,5 @@
 - 💬 Ask me about how to make a great Indian Kahwa (filter kappi)  
 - 📫 How to reach me: wang.rex.12@gmail.com
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ...I hold a design certificate from Emily Carr University. Check my art project too.
+- ⚡ Fun fact: ...I hold a design certificate from Emily Carr University. Check my art project.
 -->
